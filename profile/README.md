@@ -191,6 +191,3 @@
 <p><span style="font-size:11pt;font-family:Arial,sans-serif;">Affiliate Disclaimer</span></p>
 <p><span style="font-size:11pt;font-family:Arial,sans-serif;">This post may contain affiliate promotions. That means I may earn a commission if you purchase through a recommended offer, at no extra cost to you. I only recommend services and deals that appear to provide genuine value, and I always aim to keep pricing and offer information as accurate, transparent, and reader-focused as possible.</span></p>
 <p><br></p>
-<p><br></p>
-<p><br></p>
-<p><br></p>
