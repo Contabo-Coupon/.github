@@ -1,3 +1,5 @@
+<img width="900" height="283" alt="contabo-coupon" src="https://github.com/user-attachments/assets/52248d41-56e2-4bcf-a0e0-98ebce29c34b" />
+
 <p><a href="https://bestcoupon.store/verified/contabo/" target="_blank" rel="noopener noreferrer"><img width="1562" height="294" alt="contabo-coupon" src="https://github.com/user-attachments/assets/4f1db888-5b69-411d-a9a7-85f857dc69df" /></a> </p>
 
 > 🎯 **[GET THE VERIFIED CONTABO VPS 30 SP DEAL →](https://bestcoupon.store/verified/contabo/)**  
