@@ -3,6 +3,10 @@
 > 🎯 **[GET THE VERIFIED CONTABO VPS 30 SP DEAL →](https://bestcoupon.store/verified/contabo/)**  
 > *Official promotional pricing auto-applied • No coupon code needed • Verified May 2, 2026*
 
+**Contabo Deal Verification**
+
+<img width="900" height="330" alt="Contabo-verification" src="https://github.com/user-attachments/assets/56316ea8-0c92-4567-bd2d-9279f41138f5" />
+
 ---
 
 
